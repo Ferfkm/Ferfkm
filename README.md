@@ -2,7 +2,7 @@
 
 - 🖥️ Sou professora de Pensamento Computacional e Programação.
 
-- 💞️ Formada em Filosofia pela UNIOESTE.
+- 💞️ Formada em Filosofia pela UNIOESTE e Arte.
 
 - 🌱 Aprendizado contínuo e crescimento são meu lema, e me desafio constantemente a me manter atualizada com as últimas tendências no mundo da tecnologia.
 
